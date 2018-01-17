@@ -1,1 +1,1 @@
-Диас ПИДОР!!!
+SKalikbergenov.github.io
